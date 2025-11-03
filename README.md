@@ -76,4 +76,4 @@ Ask for supporter assistance in PT!
 -
 **|•| UNLESS FRIEND!**
 
-![Profile view counter for GitHub](https://github.com/WhenTheSUNdreams)
+![](https://komarev.com/ghpvc/?username=your-github-username&label=DEAD+RISEN)
