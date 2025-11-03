@@ -76,4 +76,4 @@ Ask for supporter assistance in PT!
 -
 **|•| UNLESS FRIEND!**
 
-![](https://komarev.com/ghpvc/?username=your-github-username&label=DEAD+RISEN)
+![](https://komarev.com/ghpvc/?username=WhenTheSUNdreams&label=DEAD+RISEN&color=6e0b0b)
