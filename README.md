@@ -1,7 +1,7 @@
 Probably just DNIs, Boundaries, and Warnings tbh.
 -
-$${\color{Teal}@radiant-zero}$$
-$${\color{Blue}@soap-exists}$$
+@radiant-zero |
+@soap-exists
 - These people are cool, ok..?
 ![IMG_7562](https://github.com/user-attachments/assets/73fde834-6cc8-45b4-ac54-53b4886d0a0c)
 -
