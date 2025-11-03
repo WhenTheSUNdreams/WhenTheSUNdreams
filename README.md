@@ -75,3 +75,5 @@ Ask for supporter assistance in PT!
 -
 -
 **|•| UNLESS FRIEND!**
+
+![Profile view counter for GitHub](https://github.com/WhenTheSUNdreams)
