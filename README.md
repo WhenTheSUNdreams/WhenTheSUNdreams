@@ -1,6 +1,6 @@
 
-@radiant-zero |
-@soap-exists
+[@radiant-zero](https://github.com/radiant-zero) |
+[@soap-exists](https://github.com/soap-exists)
 - These people are cool, check them out NOW!!
 ![IMG_7562](https://github.com/user-attachments/assets/73fde834-6cc8-45b4-ac54-53b4886d0a0c)
 -
@@ -67,6 +67,7 @@ Ask for supporter assistance in PT!
 **IWEC IF YOU SUPPORT:**
 >WCUE< |roblox game|
 >COS< |roblox game|
+>HELLUVA BOSS.<
 -
 **IWC IF YOU'RE IN THE:**
 >Project Moon Fandom< |•|
