@@ -13,7 +13,7 @@ Hide behind me.
 Whisper me, unless you're gonna say smth bad.
 Ask for supporter assistance in PT!
 - I'm a little distant or awkward at first, but I promise I'm kinda cool!!
-- I struggle with GAD (Generalized Anxiety Disorder), PTSD, ADHD, and Depression. I do also have a issues with my memory, please give me some mercy. I'm trying my best.
+- I struggle with SEVERE anxiety, PTSD, ADHD, and Depression. I do also have a issues with my memory, please give me some mercy. I'm trying my best.
 - 
 ![IMG_7562](https://github.com/user-attachments/assets/73fde834-6cc8-45b4-ac54-53b4886d0a0c)
 -
