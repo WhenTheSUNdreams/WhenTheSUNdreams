@@ -7,11 +7,11 @@
 ***FIRST OF ALL, I AM A MINOR. SOME THINGS ARE LISTED FOR MINE OR YOUR SAFETY.***
 
 **I DON'T mind if you:**
-Cover in any way, i can always readjust!
-Hide behind me.
+Cover in any way or hide behind me, i can always readjust!
+
 - I really don't mind! Cuddlepiling? Go ahead!
-Whisper me, unless you're gonna say smth bad.
-Ask for supporter assistance in PT!
+Feel free to Whisper me, unless you're gonna say smth bad.
+Ask for supporter assistance in PT! 9/10, i'll help ^^
 - I'm a little distant or awkward at first, but I promise I'm kinda cool!!
 - I struggle with GAD (Generalized Anxiety Disorder), PTSD, ADHD, and Depression. I do also have a issues with my memory, please give me some mercy. I'm trying my best.
 - 
@@ -47,7 +47,7 @@ Ask for supporter assistance in PT!
 -
 ![IMG_7562](https://github.com/user-attachments/assets/73fde834-6cc8-45b4-ac54-53b4886d0a0c)
 -
-**DO NOT COPY OR TAKE HEAVY INSPIRATION, UNLESS WE ARE CLOSE FRIENDS. Even then, PLEASE ask or let me know in advance!**
+**DO NOT COPY OR TAKE INSPIRATION, UNLESS WE ARE CLOSE FRIENDS. Even then, PLEASE ask or let me know in advance!**
 **DO NOT BE FREAKY WITH ME UNLESS WE ARE FRIENDS.**
 -
 **DO NOT FORCE SHIPS ON ME.**
