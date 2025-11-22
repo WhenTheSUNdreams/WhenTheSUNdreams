@@ -96,6 +96,7 @@ Ask for supporter assistance in PT! 9/10, i'll help ^^
 >Undertale Fandom
 >
 ***ALSO, PLEASE, if you COSPLAY VALENTINO from HAZBIN HOTEL.. leavemealone. donotINTERACT. why cosplay a problematic character..? Close friends,, don't,, interact with the skin. The character makes me HEAVILY uncomfy. NO EXCLUSIONS.***
+>
 **|•| = UNLESS FRIEND!**
 >
 ![](https://komarev.com/ghpvc/?username=WhenTheSUNdreams&label=DEAD+RISEN&color=6e0b0b)
