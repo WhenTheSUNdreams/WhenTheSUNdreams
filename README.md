@@ -22,12 +22,14 @@ Ask for supporter assistance in PT! 9/10, i'll help ^^
 **DO NOT INTERACT IF YOU'RE OVER 20, UNLESS I ALREADY KNEW YOU.**
 
 **DNI IF YOU ARE:**
->All the problematic "-ists"<
+>All the problematic "-ists"
+>
 |ex; ableist, racist|
-
->HOMOPHOBIC, TRANSPHOBIC, ETC.<
+.
+>HOMOPHOBIC, TRANSPHOBIC, ETC.
+>
 >All problematic "-files"
-|ex; ZOOPHILE, PEDOFILE|
+>|ex; ZOOPHILE, PEDOFILE|
 >
 >A Darkshipper, Proshipper, etc.
 >
@@ -36,12 +38,15 @@ Ask for supporter assistance in PT! 9/10, i'll help ^^
 >
 **DO NOT MENTION:**
 >POLITICS,
+>
 >SU*C*DE, |•|
+>
 >S/A,
+>
 >S/H |•|
--
+>
 ![IMG_7562](https://github.com/user-attachments/assets/73fde834-6cc8-45b4-ac54-53b4886d0a0c)
--
+>
 **I DO NOT BLOCK RANDOMLY. If I have you blocked, it's for a GOOD reason.**
 >
 - *Being uncomfortable, APART of my dni list, bad experience, etc.*
