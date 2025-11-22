@@ -31,7 +31,8 @@ Ask for supporter assistance in PT! 9/10, i'll help ^^
 >All problematic "-files"
 >|ex; ZOOPHILE, PEDOFILE|
 >
->A Darkshipper, Proshipper, etc.
+>A Darkshipper, Proshipper, anti, etc.
+>I LITERALLY, do NOT, want to be associated. In any way. No, i don't hate you proships or antis, or whatever you call yourselves, i just DONT wanna be around the drama it brings.
 >
 >MAPS
 |minor attracted person.|
