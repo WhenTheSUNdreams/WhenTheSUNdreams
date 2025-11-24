@@ -31,12 +31,15 @@ Ask for supporter assistance in PT! 9/10, i'll help ^^
 >All problematic "-files"
 >|ex; ZOOPHILE, PEDOFILE|
 >
->A Darkshipper, Proshipper, anti, etc.
->I LITERALLY, do NOT, want to be associated. In any way. No, i don't hate you proships or antis, or whatever you call yourselves, i just DONT wanna be around the drama it brings.
+>A Darkshipper, anti, etc.
 >
 >MAPS
 |minor attracted person.|
 >
+**IF, you are a proshipper, you MAY interact, but mind yourself. (IWEC)**
+.
+> If you bring up ANY sorta shipping drama or whatever, I WILL block. i dont wanna hear it or be even associated. Thin Ice? Thin Ice.
+.
 **DO NOT MENTION:**
 >POLITICS,
 >
