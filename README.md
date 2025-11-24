@@ -25,7 +25,7 @@ Ask for supporter assistance in PT! 9/10, i'll help ^^
 >All the problematic "-ists"
 >
 |ex; ableist, racist|
-.
+>
 >HOMOPHOBIC, TRANSPHOBIC, ETC.
 >
 >All problematic "-files"
@@ -37,9 +37,9 @@ Ask for supporter assistance in PT! 9/10, i'll help ^^
 |minor attracted person.|
 >
 **IF, you are a proshipper, you MAY interact, but mind yourself. (IWEC)**
-.
+>
 > If you bring up ANY sorta shipping drama or whatever, I WILL block. i dont wanna hear it or be even associated. Thin Ice? Thin Ice.
-.
+> 
 **DO NOT MENTION:**
 >POLITICS,
 >
