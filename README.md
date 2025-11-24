@@ -11,16 +11,22 @@
 Cover in any way or hide behind me, i can always readjust!
 >
 - I really don't mind! Cuddlepiling? Go ahead!
+>
 Feel free to Whisper me, unless you're gonna say smth bad.
-Ask for supporter assistance in PT! 9/10, i'll help ^^
+>
+Also feel free and Ask for supporter assistance in PT! 9/10, i'll help ^^
+>
 - I'm a little distant or awkward at first, but I promise I'm kinda cool!!
+>
 - I struggle with GAD (Generalized Anxiety Disorder), PTSD, ADHD, and Depression. I do also have a issues with my memory, please give me some mercy. I'm trying my best.
 - Only time i WILL snap, is if you're disrespecting or getting too mean with my oomfs. I could care less if you call me names though. I find it funny!!
+- I don't really like drama, but if it's actively doing smth to ya oomfies negatively, I'll listen.
+- I am a listener usually, hardly speak, so feel free to yap!! Whether just smth good or vent, again, I'll _listen_.
 >
 ![IMG_7562](https://github.com/user-attachments/assets/73fde834-6cc8-45b4-ac54-53b4886d0a0c)
--
+>
 **DO NOT INTERACT IF YOU'RE OVER 20, UNLESS I ALREADY KNEW YOU.**
-
+>
 **DNI IF YOU ARE:**
 >All the problematic "-ists"
 >
@@ -38,7 +44,7 @@ Ask for supporter assistance in PT! 9/10, i'll help ^^
 >
 **IF, you are a proshipper, you MAY interact, but mind yourself. (IWEC)**
 >
-> If you bring up ANY sorta shipping drama or whatever, I WILL block. i dont wanna hear it or be even associated. Thin Ice? Thin Ice.
+> I'll mind my words as long as you mind yours. If you bring up ANY sorta shipping drama or whatever, I WILL block. i dont wanna hear it or be even associated. Thin Ice? Thin Ice.
 > 
 **DO NOT MENTION:**
 >POLITICS,
@@ -54,22 +60,21 @@ Ask for supporter assistance in PT! 9/10, i'll help ^^
 **I DO NOT BLOCK RANDOMLY. If I have you blocked, it's for a GOOD reason.**
 >
 - *Being uncomfortable, APART of my dni list, bad experience, etc.*
--
+>
   *__I DO NOT UNBLOCK, YOU HAVE BEEN WARNED.__*
--
+>
 ![IMG_7562](https://github.com/user-attachments/assets/73fde834-6cc8-45b4-ac54-53b4886d0a0c)
--
+>
 **DO NOT COPY OR TAKE INSPIRATION, UNLESS WE ARE CLOSE FRIENDS. Even then, PLEASE ask or let me know in advance!**
 >
-**DO NOT BE FREAKY WITH ME UNLESS WE ARE FRIENDS.**
--
+**DO NOT BE FREAKY WITH ME UNLESS WE ARE FRIENDS. Preferably close, since, i dont wanna find OUT you're younger. I am NOT into finding myself in dramas. Seriously..**
+>
 **DO NOT FORCE SHIPS ON ME.**
->>
+>
 **Do NOT call me 1 eggs, please, makes me uncomfortable. even as a joke.**
 - *I am a 1x fictkin, and would prefer if doubles don't interact unless we are CLOSE friends.*
 >
 ![IMG_7564](https://github.com/user-attachments/assets/4eec1617-17ab-4118-aae2-aa6d6be6536d)
->
 >
 **DNI IF YOU SUPPORT:**
 >SPAWNISM
@@ -81,7 +86,7 @@ Ask for supporter assistance in PT! 9/10, i'll help ^^
 >Animatronic World |roblox game|
 >
 >SOULDRIVENLOVE
--
+>
 **IWEC IF YOU SUPPORT:**
 >WCUE |roblox game|
 >
@@ -93,7 +98,6 @@ Ask for supporter assistance in PT! 9/10, i'll help ^^
 >ANY OSC FANDOMS/GROUPS
 >
 >Forsaken Fandom |•|
->
 >
 **IWC IF YOU'RE IN THE:**
 >Project Moon Fandom |•|
