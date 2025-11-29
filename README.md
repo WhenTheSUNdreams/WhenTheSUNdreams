@@ -25,9 +25,12 @@ Also feel free and Ask for supporter assistance in PT! 9/10, i'll help ^^
 >
 ![IMG_7562](https://github.com/user-attachments/assets/73fde834-6cc8-45b4-ac54-53b4886d0a0c)
 >
+- *Random yap, but i'm REALLY into roblox stuff. ESPECIALLY myths, and Bee Swarm Simulator. I MIGHT speak a LOT about em, so errhh,, sorry if I annoy ya*
+>
 **DO NOT INTERACT IF YOU'RE OVER 20, UNLESS I ALREADY KNEW YOU.**
+>
 **PROBABLY,, DONT INTERACT IF YOU'RE UNDER 12, UNLESS I /KNEW/ YOU PRIOR.**
-> Of course, ignore this and just IWC if I'm inviting/Hosting. I kinda am working on a mafia themed around a certain roblox myth..
+> Of course, both of these and just Interact with CAUTION if I'm inviting/Hosting. I kinda am working on a mafia themed around a certain roblox myth..
 >
 **DNI IF YOU ARE:**
 >All the problematic "-ists"
