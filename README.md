@@ -18,7 +18,7 @@ Also feel free and Ask for supporter assistance in PT! 9/10, i'll help ^^
 >
 - I'm a little distant or awkward at first, but I promise I'm kinda cool!!
 >
-- I struggle with GAD (Generalized Anxiety Disorder), PTSD, ADHD, and Depression. I do also have a issues with my memory, please give me some mercy. I'm trying my best.
+- I struggle with GAD (Generalized Anxiety Disorder), PTSD, ADHD, and Depression. I do also have a issues with my memory, please give me some mercy. I'm trying my best. I am getting help though, so I should be fine.
 - Only time i WILL snap, is if you're disrespecting or getting too mean with my oomfs. I could care less if you call me names though. I find it funny!!
 - I don't really like drama, but if it's actively doing smth to ya oomfies negatively, I'll listen.
 - I am a listener usually, hardly speak, so feel free to yap!! Whether just smth good or vent, again, I'll _listen_.
