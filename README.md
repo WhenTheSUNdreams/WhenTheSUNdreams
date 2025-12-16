@@ -35,7 +35,7 @@ Also feel free and Ask for supporter assistance in PT! 9/10, i'll help ^^
 >
 **DO NOT INTERACT IF YOU'RE OVER 20, UNLESS I ALREADY KNEW YOU.**
 >
-**PROBABLY,, DONT INTERACT IF YOU'RE UNDER 12, UNLESS I /KNEW/ YOU PRIOR.**
+**PROBABLY,, DONT INTERACT IF YOU'RE UNDER 14, UNLESS I /KNEW/ YOU PRIOR.**
 > Of course, both of these and just Interact with CAUTION if I'm inviting/Hosting. I kinda am working on a mafia themed around a certain roblox myth..
 >
 **DNI IF YOU ARE:**
@@ -76,9 +76,9 @@ Also feel free and Ask for supporter assistance in PT! 9/10, i'll help ^^
 >
 ![IMG_7562](https://github.com/user-attachments/assets/73fde834-6cc8-45b4-ac54-53b4886d0a0c)
 >
-**DO NOT COPY OR TAKE INSPIRATION, UNLESS WE ARE CLOSE FRIENDS. Even then, PLEASE ask or let me know in advance!**
+**DO NOT COPY OR TAKE INSPIRATION, UNLESS WE ARE CLOSE FRIENDS. Otherwise, I really don't mind!!**
 >
-**DO NOT BE FREAKY WITH ME UNLESS WE ARE FRIENDS. Preferably close, since, i dont wanna find OUT you're younger. I am NOT into finding myself in dramas. Seriously..**
+**DO NOT BE FREAKY WITH ME UNLESS WE ARE *CLOSE* FRIENDS. Just, a preference. Thank you!**
 >
 **DO NOT FORCE SHIPS ON ME.**
 >
