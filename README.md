@@ -1,11 +1,12 @@
 
 [@radiant-zero](https://github.com/radiant-zero) |
+[@Sk1ttlezWasHere](https://github.com/Sk1ttlezWasH3re) |
 [@soap-exists](https://github.com/soap-exists)
 - These people are cool, check them out NOW!!
   >
 ![IMG_7562](https://github.com/user-attachments/assets/73fde834-6cc8-45b4-ac54-53b4886d0a0c)
 >
-***FIRST OF ALL, I AM A MINOR. SOME THINGS ARE LISTED FOR MINE OR YOUR SAFETY.***
+***FIRST OF ALL, I AM 16. still. a. MINOR. SOME THINGS ARE LISTED FOR MINE OR YOUR SAFETY.***
 >
 **I DON'T mind if you:**
 Cover in any way or hide behind me, i can always readjust!
