@@ -1,6 +1,7 @@
 
 [@radiant-zero](https://github.com/radiant-zero) |
-[@Sk1ttlezWasHere](https://github.com/Sk1ttlezWasH3re) |
+[@Sk1ttlezWasHere](https://github.com/Sk1ttlezWasH3re)
+[@cheezeghost](https://github.com/cheezeghost) |
 [@soap-exists](https://github.com/soap-exists)
 - These people are cool, check them out NOW!!
   >
