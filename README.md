@@ -2,7 +2,7 @@
 [@radiant-zero](https://github.com/radiant-zero) |
 [@ohMyN1GHTSH4D3](https://github.com/ohMyN1IGHTSH4D3) |
 [@Sk1ttlezWasHere](https://github.com/Sk1ttlezWasH3re) |
-[@cheezeghost](https://github.com/cheezeghost) |
+[@bleedingmemory](https://github.com/bleedingmemory) |
 [@soap-exists](https://github.com/soap-exists)
 - These people are cool, check them out NOW!!
   >
