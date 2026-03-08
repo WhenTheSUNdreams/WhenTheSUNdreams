@@ -19,6 +19,7 @@ Feel free to Whisper me, i'll ignore you if you say smth creepy/nasty though.
 >
 Also feel free and Ask for supporter assistance in PT! 9/10, i'll help ^^
 >
+- Fair warning: I DO use tonetags, let me know if you'd rather me not use em or explain em.
 >
 - I'm usually either Distant/Untrusting or Dry at FIRST, but I promise I don't stay that way!!
 >
@@ -28,7 +29,7 @@ Also feel free and Ask for supporter assistance in PT! 9/10, i'll help ^^
 >
 - Only time i WILL snap, is if you're disrespecting or getting too mean with my oomfs. I could care less if you call me names though. I find it funny!!
 >
-- I reciprocate and mirror how you speak/act with me 90% of the time sooo.
+- I do sometimes mirror others, just a heads up cause I know some people don't like it.
 >
 - I don't really like drama, but if it's actively doing smth to ya oomfies negatively, I'll listen.
 >
