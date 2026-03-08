@@ -15,18 +15,20 @@ Cover in any way or hide behind me, i can always readjust!
 >
 - I really don't mind! Cuddlepiling? Go ahead!
 >
-Feel free to Whisper me, unless you're gonna say smth bad.
+Feel free to Whisper me, i'll ignore you if you say smth creepy/nasty though.
 >
 Also feel free and Ask for supporter assistance in PT! 9/10, i'll help ^^
 >
 >
-- I'm a little distant or awkward at first, but I promise I'm kinda cool!!
+- I'm usually either Distant/Untrusting or Dry at FIRST, but I promise I don't stay that way!!
 >
 - Sometimes,IDoTypeLikeThis, or_like_this. Kinda,,a habit at this point.
 >
-- I struggle with GAD (Generalized Anxiety Disorder), PTSD, ADHD, and Depression. I do also have a issues with my memory, please give me some mercy. I'm trying my best. I am getting help though, so I should be fine.
+- I struggle with GAD (Generalized Anxiety Disorder), PTSD, ADHD, and Depression. I do also have a issues with my memory, please give me some mercy/patience. I'm trying my best.
 >
 - Only time i WILL snap, is if you're disrespecting or getting too mean with my oomfs. I could care less if you call me names though. I find it funny!!
+>
+- I reciprocate and mirror how you speak/act with me 90% of the time sooo.
 >
 - I don't really like drama, but if it's actively doing smth to ya oomfies negatively, I'll listen.
 >
