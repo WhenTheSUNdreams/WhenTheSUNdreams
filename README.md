@@ -39,7 +39,7 @@ Also feel free and Ask for supporter assistance in PT! 9/10, i'll help ^^
 **DO NOT INTERACT IF YOU'RE OVER 20, UNLESS I ALREADY KNEW YOU.**
 >
 **PROBABLY,, DONT INTERACT IF YOU'RE UNDER 14, UNLESS I /KNEW/ YOU PRIOR.**
-> Of course, both of these and just Interact with CAUTION if I'm inviting/Hosting. I kinda am working on a mafia themed around a certain roblox myth..
+> Of course, both of these don't count if im hosting/inviting. In that case, please just interact with care; i'm slowly working on a mafia based/inspired on a roblox myth. .
 >
 **DNI IF YOU ARE:**
 >All the problematic "-ists"
@@ -79,11 +79,11 @@ Also feel free and Ask for supporter assistance in PT! 9/10, i'll help ^^
 >
 ![IMG_7562](https://github.com/user-attachments/assets/73fde834-6cc8-45b4-ac54-53b4886d0a0c)
 >
-**DO NOT COPY OR TAKE INSPIRATION, UNLESS WE ARE CLOSE FRIENDS. Otherwise, I really don't mind!!**
+**YOU CAN TAKE INSPIRATION UNLESS IT'S BLATANT COPYING. Otherwise, I really don't care!**
 >
 **DO NOT BE FREAKY WITH ME UNLESS WE ARE *CLOSE* FRIENDS. Just, a preference. Thank you!**
 >
-**DO NOT FORCE SHIPS ON ME.**
+**DO NOT FORCE SHIPS ON ME / SHIPS DNIUID OR CLOSE..**
 >
 **Do NOT call me 1 eggs, please, makes me uncomfortable. even as a joke.**
 - *I am a 1x fictkin, and would prefer if doubles don't interact unless we are CLOSE friends.*
@@ -104,10 +104,9 @@ Also feel free and Ask for supporter assistance in PT! 9/10, i'll help ^^
 **IWEC IF YOU SUPPORT:**
 >WCUE |roblox game|
 >
->COS |roblox game|
 >
 **IWEC IF YOU'RE IN THE:**
->HELLUVA BOSS/HAZBIN HOTEL FANDOM.
+>HELLUVA BOSS/HAZBIN HOTEL FANDOM. prefered you don't interact unless i do, though.
 >
 >ANY OSC FANDOMS/GROUPS
 >
