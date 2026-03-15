@@ -1,9 +1,9 @@
 
 [@radiant-zero](https://github.com/radiant-zero) |
 [@ohMyN1GHTSH4D3](https://github.com/ohMyN1IGHTSH4D3) |
+[@selozar-tro](https://github.com/selozar-tro) |
 [@Sk1ttlezWasHere](https://github.com/Sk1ttlezWasH3re) |
-[@bleedingmemory](https://github.com/bleedingmemory) |
-[@soap-exists](https://github.com/soap-exists)
+[@bleedingmemory](https://github.com/bleedingmemory)
 - These people are cool, check them out NOW!!
   >
 ![IMG_7562](https://github.com/user-attachments/assets/73fde834-6cc8-45b4-ac54-53b4886d0a0c)
