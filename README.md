@@ -5,127 +5,51 @@
 [@Sk1ttlezWasHere](https://github.com/Sk1ttlezWasH3re) |
 [@bleedingmemory](https://github.com/bleedingmemory)
 - These people are cool, check them out NOW!!
-  >
-![IMG_7562](https://github.com/user-attachments/assets/73fde834-6cc8-45b4-ac54-53b4886d0a0c)
->
-***FIRST OF ALL, I AM 16. still. a. MINOR. SOME THINGS ARE LISTED FOR MINE OR YOUR SAFETY.***
->
-**I DON'T mind if you:**
-Cover in any way or hide behind me, i can always readjust!
->
-- I really don't mind! Cuddlepiling? Go ahead!
->
-Feel free to Whisper me, i'll ignore you if you say smth creepy/nasty though.
->
-Also feel free and Ask for supporter assistance in PT! 9/10, i'll help ^^
->
-- Fair warning: I DO use tonetags, let me know if you'd rather me not use em or explain em.
->
-- I'm usually either Distant/Untrusting or Dry at FIRST, but I promise I don't stay that way!!
->
-- Sometimes,IDoTypeLikeThis, or_like_this. Kinda,,a habit at this point.
->
-- I struggle with GAD (Generalized Anxiety Disorder), PTSD, ADHD, and Depression. I do also have a issues with my memory, please give me some mercy/patience. I'm trying my best.
->
-- Only time i WILL snap, is if you're disrespecting or getting too mean with my oomfs. I could care less if you call me names though. I find it funny!!
->
-- I do sometimes mirror others, just a heads up cause I know some people don't like it.
->
-- I don't really like drama, but if it's actively doing smth to ya oomfies negatively, I'll listen.
->
-- I am a listener usually, hardly speak, so feel free to yap!! Whether just smth good or vent, again, I'll _listen_.
->
-![IMG_7562](https://github.com/user-attachments/assets/73fde834-6cc8-45b4-ac54-53b4886d0a0c)
->
-- *Random yap, but i'm REALLY into roblox stuff. ESPECIALLY myths, and Bee Swarm Simulator. I MIGHT speak a LOT about em, so errhh,, sorry if I annoy ya*
->
-**DO NOT INTERACT IF YOU'RE OVER 20, UNLESS I ALREADY KNEW YOU.**
->
-**PROBABLY,, DONT INTERACT IF YOU'RE UNDER 14, UNLESS I /KNEW/ YOU PRIOR.**
-> Of course, both of these don't count if im hosting/inviting. In that case, please just interact with care; i'm slowly working on a mafia based/inspired on a roblox myth. .
->
-**DNI IF YOU ARE:**
->All the problematic "-ists"
->
-|ex; ableist, racist|
->
->HOMOPHOBIC, TRANSPHOBIC, ETC.
->
->All problematic "-files"
->|ex; ZOOPHILE, PEDOFILE|
->
->A Darkshipper, anti, etc.
->
->MAPS
-|minor attracted person.|
->
-**IF, you are a proshipper, you MAY interact, but mind yourself. (IWEC)**
->
-> I'll mind my words as long as you mind yours. If you bring up ANY sorta shipping drama or whatever, I WILL block. i dont wanna hear it or be even associated. Thin Ice? Thin Ice.
-> 
-**DO NOT MENTION:**
->POLITICS,
->
->SU*C*DE, |•|
->
->S/A,
->
->S/H |•|
->
-![IMG_7562](https://github.com/user-attachments/assets/73fde834-6cc8-45b4-ac54-53b4886d0a0c)
->
-**I DO NOT BLOCK RANDOMLY. If I have you blocked, it's for a GOOD reason.**
->
-- *Being uncomfortable, APART of my dni list, bad experience, etc.*
->
-  *__I DO NOT UNBLOCK, YOU HAVE BEEN WARNED.__*
->
-![IMG_7562](https://github.com/user-attachments/assets/73fde834-6cc8-45b4-ac54-53b4886d0a0c)
->
-**YOU CAN TAKE INSPIRATION UNLESS IT'S BLATANT COPYING. Otherwise, I really don't care!**
->
-**DO NOT BE FREAKY WITH ME UNLESS WE ARE *CLOSE* FRIENDS. Just, a preference. Thank you!**
->
-**DO NOT FORCE SHIPS ON ME / SHIPS DNIUID OR CLOSE..**
+
+Partial main account; [@FOOLSLULLABY](https://github.com/FOOLSLULLABY)
+This is just an extended DOs and DONTs now.
+
 >
 **Do NOT call me 1 eggs, please, makes me uncomfortable. even as a joke.**
 - *I am a 1x fictkin, and would prefer if doubles don't interact unless we are CLOSE friends.*
 >
 ![IMG_7564](https://github.com/user-attachments/assets/4eec1617-17ab-4118-aae2-aa6d6be6536d)
 >
-**DNI IF YOU SUPPORT:**
->SPAWNISM
+**DNI COMPLETELY:**
+>SPAWNISM SUPPORTERS
 >
->Yandere simulator
+>Yandere simulator fans
 >
->REDFURTHEFOX
+>REDFURTHEFOX SUPPORTERS
 >
->Animatronic World |roblox game|
+>Animatronic World FANS
 >
->SOULDRIVENLOVE
+>SOULDRIVENLOVE SUPPORTERS
 >
-**IWEC IF YOU SUPPORT:**
+>valentino/angel dust cosplayers
+>
+>Shedletsky/Telamon cosplayers |+|
+>
+**IWEC PREFERRED IN GENERAL:**
 >WCUE |roblox game|
 >
->
-**IWEC IF YOU'RE IN THE:**
 >HELLUVA BOSS/HAZBIN HOTEL FANDOM. prefered you don't interact unless i do, though.
 >
 >ANY OSC FANDOMS/GROUPS
 >
->Forsaken Fandom |•|
+>Forsaken Fandom |+|
 >
-**IWC IF YOU'RE IN THE:**
->Project Moon Fandom |•|
+**IWC IN GENERAL:**
+>Project Moon Fandom |+|
 >
->Dandy's World Fandom |•|
+>Dandy's World Fandom |+|
 >
 >FNAF Fandom
 >
->Undertale Fandom
+>Undertale AUs' Fandoms |+|
 >
-***ALSO, PLEASE, if you COSPLAY VALENTINO from HAZBIN HOTEL.. leavemealone. donotINTERACT. why cosplay a problematic character..? Close friends,, don't,, interact with the skin. The character makes me HEAVILY uncomfy. NO EXCLUSIONS.***
+>CRK fandom. |+|
 >
-**|•| = UNLESS FRIEND!**
+**|+| = UNLESS FRIEND!**
 >
 ![](https://komarev.com/ghpvc/?username=WhenTheSUNdreams&label=DEAD+RISEN&color=6e0b0b)
