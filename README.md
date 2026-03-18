@@ -36,12 +36,14 @@ This is just an extended DOs and DONTs now.
 >
 >HELLUVA BOSS/HAZBIN HOTEL FANDOM. prefered you don't interact unless i do, though.
 >
+>Project Moon Fandoms |+|
+>
 >ANY OSC FANDOMS/GROUPS
 >
 >Forsaken Fandom |+|
 >
 **IWC IN GENERAL:**
->Project Moon Fandom |+|
+
 >
 >Dandy's World Fandom |+|
 >
