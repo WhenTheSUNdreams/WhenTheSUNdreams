@@ -4,6 +4,7 @@
 [@selozar-tro](https://github.com/selozar-tro) |
 [@Sk1ttlezWasHere](https://github.com/Sk1ttlezWasH3re) |
 [@bleedingmemory](https://github.com/bleedingmemory)
+[@fqlsehope](https://github.com/fqlsehope)
 - These people are cool, check them out NOW!!
 
 Partial main account; [@FOOLSLULLABY](https://github.com/FOOLSLULLABY)
