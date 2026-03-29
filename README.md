@@ -3,11 +3,11 @@
 [@ohMyN1GHTSH4D3](https://github.com/ohMyN1IGHTSH4D3) |
 [@selozar-tro](https://github.com/selozar-tro) |
 [@Sk1ttlezWasHere](https://github.com/Sk1ttlezWasH3re) |
-[@bleedingmemory](https://github.com/bleedingmemory)
+[@bleedingmemory](https://github.com/bleedingmemory) |
 [@fqlsehope](https://github.com/fqlsehope)
 - These people are cool, check them out NOW!!
 
-Partial main account; [@FOOLSLULLABY](https://github.com/FOOLSLULLABY)
+I'm mostly active on [@FOOLSLULLABY](https://github.com/FOOLSLULLABY)
 >
 This is just an extended DOs and DONTs now.
 
