@@ -8,7 +8,7 @@
 [@fqlsehope](https://github.com/fqlsehope)
 - These people are cool, check them out NOW!!
 
-I'm mostly active on [@FOOLSLULLABY](https://github.com/FOOLSLULLABY)
+I'm mostly active on [@FOOLSLULLABY](https://github.com/FOOLSLULLABY). This will become a blank account in a few months or so.
 >
 This is just an extended DOs and DONTs now.
 
