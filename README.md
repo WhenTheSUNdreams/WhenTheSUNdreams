@@ -8,9 +8,9 @@
 [@fqlsehope](https://github.com/fqlsehope)
 - These people are cool, check them out NOW!!
 
-This will become a blank account in a few months or so. I'm mostly active on [@FOOLSLULLABY](https://github.com/FOOLSLULLABY).
+Planning to completely remake readme's on this account and [@FOOLSLULLABY](https://github.com/FOOLSLULLABY).
 >
-This is just an extended DOs and DONTs now.
+This is just an extended DOs and DONTs for now.
 
 >
 **Do NOT call me 1 eggs, please, makes me uncomfortable. even as a joke.**
