@@ -9,12 +9,19 @@
 - These people are cool, check them out NOW!!
 
 Planning to completely remake readme's on this account and [@FOOLSLULLABY](https://github.com/FOOLSLULLABY).
+
+#
 >
 This is just an extended DOs and DONTs for now.
 
 >
 **Do NOT call me 1 eggs, please, makes me uncomfortable. even as a joke.**
 - *I am a 1x fictkin, and would prefer if doubles don't interact unless we are CLOSE friends.*
+
+#
+
+**IWEC; proshippers.**
+> Fiction affects *MY* reality, due to how I present myself and how my brain works. In general, i prefer only CLOSE friends talk about ships entirely. Please don't mistake this for hating you bunch!
 >
 ![IMG_7564](https://github.com/user-attachments/assets/4eec1617-17ab-4118-aae2-aa6d6be6536d)
 >
