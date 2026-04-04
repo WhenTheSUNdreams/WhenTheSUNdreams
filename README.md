@@ -13,7 +13,9 @@ Planning to completely remake readme's on this account and [@FOOLSLULLABY](https
 #
 >
 This is just an extended DOs and DONTs for now.
-
+>
+**_BASIC DNI UNTIL THIS IS UPDATEd_**
+> unless stated otherwise.
 >
 **Do NOT call me 1 eggs, please, makes me uncomfortable. even as a joke.**
 - *I am a 1x fictkin, and would prefer if doubles don't interact unless we are CLOSE friends.*
