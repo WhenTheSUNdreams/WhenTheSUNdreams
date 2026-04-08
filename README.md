@@ -22,9 +22,9 @@ This is just an extended DOs and DONTs for now.
 
 #
 
-**IWEC; proshippers.**
-> Fiction affects *MY* reality, due to how I present myself and how my brain works. In general, i prefer only CLOSE friends talk about ships entirely. Please don't mistake this for hating you bunch!
->
+**TO ALL, TO ANY;**
+> Fiction affects *MY* reality, due to how I present myself and how my brain works. In general, i prefer only CLOSE friends talk about ships entirely.
+
 ![IMG_7564](https://github.com/user-attachments/assets/4eec1617-17ab-4118-aae2-aa6d6be6536d)
 >
 **DNI COMPLETELY:**
