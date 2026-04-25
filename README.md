@@ -45,7 +45,7 @@ This is just an extended DOs and DONTs for now.
 **IWEC PREFERRED IN GENERAL:**
 >WCUE |roblox game|
 >
->HELLUVA BOSS/HAZBIN HOTEL FANDOM. prefered you don't interact unless i do, though.
+>HELLUVA BOSS/HAZBIN HOTEL FANDOM. prefered you don't interact at ALL though.
 >
 >Project Moon Fandoms |+|
 >
