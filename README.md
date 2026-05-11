@@ -1,6 +1,7 @@
 
 [@radiant-zero](https://github.com/radiant-zero) |
 [@ohMyN1GHTSH4D3](https://github.com/ohMyN1IGHTSH4D3) |
+[@m0urn1ngn1ghtsh4des](https://github.com/m0urn1ngn1ghtsh4des) |
 [@selozar-tro](https://github.com/selozar-tro) |
 [@M3lodi1](https://github.com/M3lodi1) |
 [@Sk1ttlezWasHere](https://github.com/Sk1ttlezWasH3re) |
