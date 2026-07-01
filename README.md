@@ -1,7 +1,7 @@
 
 [@radiant-zero](https://github.com/radiant-zero) |
 [@wifiessss](https://github.com/wifiessss) |
-[@m0urn1ngn1ghtsh4des](https://github.com/m0urn1ngn1ghtsh4des) |
+[@M0RALITYOFTH3STRATEG1ST](https://github.com/M0RALITYOFTH3STRATEG1ST) |
 [@selozar-tro](https://github.com/selozar-tro) |
 [@M3lodi1](https://github.com/M3lodi1) |
 [@Sk1ttlezWasHere](https://github.com/Sk1ttlezWasH3re) |
