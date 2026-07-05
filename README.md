@@ -1,12 +1,24 @@
 
-[@radiant-zero](https://github.com/radiant-zero) |
-[@wifiessss](https://github.com/wifiessss) |
-[@M0RALITYOFTH3STRATEG1ST](https://github.com/M0RALITYOFTH3STRATEG1ST) |
-[@selozar-tro](https://github.com/selozar-tro) |
-[@M3lodi1](https://github.com/M3lodi1) |
-[@Sk1ttlezWasHere](https://github.com/Sk1ttlezWasH3re) |
-[@bleedingmemory](https://github.com/bleedingmemory) |
-[@fqlsehope](https://github.com/fqlsehope)
+[@radiant-zero](https://github.com/radiant-zero)
+> The Ever-Radiant
+
+[@A-Crescent-Shadow](https://github.com/A-Crescent-Shadow)
+> The Merciful Umbra
+
+[@wifiessss](https://github.com/wifiessss) & [@M0RALITYOFTH3STRATEG1ST](https://github.com/M0RALITYOFTH3STRATEG1ST)
+> A Wing's Feathers
+
+[@selozar-tro](https://github.com/selozar-tro)
+> A Creation's Solace
+
+[@M3lodi1](https://github.com/M3lodi1)
+> An Everlasting Rainbow
+
+[@Sk1ttlezWasHere](https://github.com/Sk1ttlezWasH3re)
+> The Perseverant Hue
+
+[@bleedingmemory](https://github.com/bleedingmemory)
+> A Memorable Creator
 - These people are cool, check them out NOW!!
 
 Planning to completely remake readme's on this account and [@FOOLSLULLABY](https://github.com/FOOLSLULLABY).
