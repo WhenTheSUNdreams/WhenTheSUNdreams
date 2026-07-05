@@ -3,7 +3,7 @@
 > The Ever-Radiant
 
 [@A-Crescent-Shadow](https://github.com/A-Crescent-Shadow)
-> The Merciful Umbra
+> The Merciful Umbra; hello there!!
 
 [@wifiessss](https://github.com/wifiessss) & [@M0RALITYOFTH3STRATEG1ST](https://github.com/M0RALITYOFTH3STRATEG1ST)
 > A Wing's Feathers
