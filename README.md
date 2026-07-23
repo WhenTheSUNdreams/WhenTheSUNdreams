@@ -64,12 +64,11 @@ This is just an extended DOs and DONTs for now.
 >
 >ANY OSC FANDOMS/GROUPS
 >
->Forsaken Fandom |+|
+>Forsaken Fandom. i dont support the devs, let me enjoy the characters. |+|
 >
-**IWC IN GENERAL:**
+>Dandy's World Fandom. preferred you don't interact unless close friend. no, i dont support qwel. let me enjoy the characters at least. 
 
->
->Dandy's World Fandom |+|
+**IWC IN GENERAL:**
 >
 >FNAF Fandom
 >
