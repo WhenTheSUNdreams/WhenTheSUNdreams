@@ -13,12 +13,14 @@
 
 [@M3lodi1](https://github.com/M3lodi1)
 > An Everlasting Rainbow
+> <details> Even if you are gone now, know that i'll forever cherish our times. Thank you for changing the lives you came into contact to. You saved me, everytime I was at my lowest. WE, yes WE, are proud of you for being super strong. I've never been good with words, haha. </details>
 
 [@Sk1ttlezWasHere](https://github.com/Sk1ttlezWasH3re)
 > The Perseverant Hue
 
 [@bleedingmemory](https://github.com/bleedingmemory)
 > A Memorable Creator
+> <details> If,,, you are truly gone.. please know i'm more than greatful that you had been my friend. THANK YOU,, for being one of the best telamons I know. Fly high. </details>
 - These people are cool, check them out NOW!!
 
 Planning to completely remake readme's on this account and [@FOOLSLULLABY](https://github.com/FOOLSLULLABY).
