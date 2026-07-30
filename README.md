@@ -6,7 +6,11 @@
 > The Merciful Umbra; hello there!!
 
 [@wifiessss](https://github.com/wifiessss) & [@M0RALITYOFTH3STRATEG1ST](https://github.com/M0RALITYOFTH3STRATEG1ST)
-> A Wing's Feathers
+> The Kin of a Creation
+
+[@wifififies](https://github.com/wifififies)
+> THE BEST reflection.
+
 
 [@selozar-tro](https://github.com/selozar-tro)
 > A Creation's Solace
