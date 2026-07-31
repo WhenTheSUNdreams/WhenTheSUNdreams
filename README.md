@@ -1,5 +1,11 @@
 ![IMG_7564](https://github.com/user-attachments/assets/4eec1617-17ab-4118-aae2-aa6d6be6536d)
 
+**'^' You came from Ponytown. How else did you get here? Hi.**
+
+<details>
+<summary>THE BEST PEOPLE I KNOW!!</summary>
+
+
 [@radiant-zero](https://github.com/radiant-zero)
 > The Ever-Radiant
 
@@ -18,18 +24,13 @@
 
 [@M3lodi1](https://github.com/M3lodi1)
 > An Everlasting Rainbow
-> <details><summary>.</summary> Even if you are gone now, know that i'll forever cherish our times. Thank you for changing the lives you came into contact to. You saved me, everytime I was at my lowest. WE, yes WE, are proud of you for being super strong. I've never been good with words, haha. </details>
 
 [@Sk1ttlezWasHere](https://github.com/Sk1ttlezWasH3re)
 > The Perseverant Hue
 
 [@bleedingmemory](https://github.com/bleedingmemory)
-> A Memorable Creator
-> <details> <summary>.</summary> If,,, you are truly gone.. please know i'm more than greatful that you had been my friend. THANK YOU,, for being one of the best telamons I know. Fly high. </details>
-- These people are cool, check them out NOW!!
+> A Memorable Creator</details>
 #
-
-**'^' You came from Ponytown. How else did you get here? Hi.**
 <details>
   <summary>BOUNDARIES/DNIs</summary>
 
@@ -134,5 +135,8 @@ In NO ORDER:
 
   
 </details>
+
+![IMG_7564](https://github.com/user-attachments/assets/4eec1617-17ab-4118-aae2-aa6d6be6536d)
+
 
 ![](https://komarev.com/ghpvc/?username=WhenTheSUNdreams&label=DEAD+RISEN&color=6e0b0b)
