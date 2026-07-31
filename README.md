@@ -98,7 +98,7 @@ IWC (unless close)
   
 > I also may act like characters I resonate well with.
 
-> Again, in turn, I usually cling to people who like / resonate / have kins of the same medias my kinds come from.
+> Again, in turn, I usually cling to people who like / resonate / have kins of the same medias my kins come from.
 </details>
 
 
