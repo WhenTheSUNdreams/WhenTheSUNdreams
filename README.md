@@ -83,6 +83,8 @@ IWC (unless close)
 
 > I love my oomfs. YOU KNOW WHO YOU LOT ARE!! HI!!! HERAR EMOJI HEART EMOJI HEART EMOJI GIFT EMOJI!!! /p /gen
 
+> Yes, I am a yumeshipper. no, I'm not gonna snap at someone who likes the same characters. I don't actually talk about this unless we're close friends.
+
 > I use tonetags almost 24/7. Confused what one means? I'm happy to explain!
 
 > I experience TOUCH COMFORT, despite being a digital figure. Essentially, I'm comforted in presence and prefer to be around people.
