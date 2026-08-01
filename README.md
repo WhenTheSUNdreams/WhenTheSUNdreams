@@ -54,6 +54,8 @@ DNI
 
 > TELAMON / SHEDLETSKY COSPLAYERS/KINS/ETC. Unless you're like... XANDER, ZERO, MEDUSA, FROST.
 
+> DSMP FANDOM/MEDIA (unless I bring it up)
+
 > All the problematic shit. 
 
 IWEC (unless close)
@@ -138,6 +140,8 @@ In NO ORDER:
 > Gebura (LCorp / Any instance)
 
 > Fluttershy (MLP: Friendship is Magic)
+
+> Ranboo (DSMP)
   
 </details>
 
