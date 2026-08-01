@@ -137,6 +137,7 @@ In NO ORDER:
 
 > Gebura (LCorp / Any instance)
 
+> Fluttershy (MLP: Friendship is Magic)
   
 </details>
 
