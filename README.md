@@ -1,6 +1,6 @@
 ![IMG_7564](https://github.com/user-attachments/assets/4eec1617-17ab-4118-aae2-aa6d6be6536d)
 
-**'^' You came from Ponytown. How else did you get here? Hi.**
+**'^' You came from Ponytown or Art Fight. How else did you get here? Hi.**
 
 <details>
 <summary>THE BEST PEOPLE I KNOW!!</summary>
