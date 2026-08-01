@@ -62,15 +62,17 @@ IWEC (unless close)
 
 > DW FANDOM
 
-> CRK FANDOM
-
 > FNAF FANDOM(s)
+
+> MLP FANDOM
 
 IWC (unless close)
 
 > PROJECT MOON FANDOM(s)
 
 > UNDERTALE FANDOM (and the aus' fandoms)
+
+> CRK FANDOM
 
 </details>
 
