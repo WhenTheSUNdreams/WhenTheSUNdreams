@@ -48,6 +48,8 @@ DNI
   
 > QWEL supporters
 
+> Hazbin Hotel/Helluva Boss Fandom/Media. ALL OF IT.
+
 > Yandere simulator supporters
 
 > Redfurthefox supporters (aka the owner of Animatronic world on roblox)
@@ -63,6 +65,8 @@ IWEC (unless close)
 > F*RS*KEN FANDOM
 
 > DW FANDOM
+
+> WC/WCUE FANDOM(s)
 
 > FNAF FANDOM(s)
 
