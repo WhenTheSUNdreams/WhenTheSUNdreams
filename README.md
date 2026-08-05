@@ -93,7 +93,7 @@ IWC (unless close)
 
 > I use tonetags almost 24/7. Confused what one means? I'm happy to explain!
 
-> I experience TOUCH COMFORT, despite being a digital figure. Essentially, I'm comforted in presence and prefer to be around people.
+> I experience TOUCH COMFORT, despite being a digital figure. Essentially, I'm comforted in presence and prefer to be around people. Essentially, please please please sit with h me if I'm alone!!!
 
 > I am unwell, whether I present it or not. I am unstable, though I'm not sure what's wrong with me. Please, be patient with me.
 
