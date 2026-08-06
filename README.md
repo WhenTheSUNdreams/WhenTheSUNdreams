@@ -95,6 +95,8 @@ IWC (unless close)
 
 > I experience TOUCH COMFORT, despite being a digital figure. Essentially, I'm comforted in presence and prefer to be around people. Essentially, please please please sit with h me if I'm alone!!!
 
+> I have a tendency to hide advertisements in PONYTOWN because it clogs my chat.. it's always temporary tho!
+
 > I am unwell, whether I present it or not. I am unstable, though I'm not sure what's wrong with me. Please, be patient with me.
 
 > I will come to you if I need/want help. Don't feel bad and don't pester me.
