@@ -89,10 +89,6 @@ IWC (unless close)
 
 > I love my oomfs. YOU KNOW WHO YOU LOT ARE!! HI!!! HERAR EMOJI HEART EMOJI HEART EMOJI GIFT EMOJI!!! /p /gen
 
-> I HOLD GRUDGES. My memory may be poor, but I HAVE NEVER FORGOTTEN BAD EXPERIENCES. Very rarely can I forgive, and I am sorry for that in advance.
-
-> I can and will get protective over my oomfs, because they are ALL AMAZING PEOPLE. Any bad terms with them = Instant bad terms with me.
-
 > Yes, I am a yumeshipper. no, I'm not gonna snap at someone who likes the same characters. I don't actually talk about my f/os or familials unless we're close friends.
 
 > I use tonetags almost 24/7. Confused what one means? I'm happy to explain!
@@ -118,10 +114,13 @@ IWC (unless close)
 
 
 <details> 
-  <summary>!!WARNING!!</summary>
+  <summary>EXTRA warnings</summary>
   
 > Fiction affects *MY* reality, due to how I present myself and how my brain works. In general, i prefer only CLOSE friends talk about ships entirely. </details>
 
+> I can and will get protective over my oomfs, because they are ALL AMAZING PEOPLE. Any bad terms with them = Instant bad terms with me.
+
+> If it isn't obvious: I HOLD GRUDGES. My memory may be poor, but I HAVE NEVER FORGOTTEN BAD EXPERIENCES. Very rarely can I forgive, and I am sorry for that in advance.
 
 <details>
 <summary>KINS</summary>
