@@ -116,11 +116,12 @@ IWC (unless close)
 <details> 
   <summary>EXTRA warnings</summary>
   
-> Fiction affects *MY* reality, due to how I present myself and how my brain works. In general, i prefer only CLOSE friends talk about ships entirely. </details>
+> Fiction affects *MY* reality, due to how I present myself and how my brain works. In general, i prefer only CLOSE friends talk about ships entirely.
 
 > I can and will get protective over my oomfs, because they are ALL AMAZING PEOPLE. Any bad terms with them = Instant bad terms with me.
 
 > If it isn't obvious: I HOLD GRUDGES. My memory may be poor, but I HAVE NEVER FORGOTTEN BAD EXPERIENCES. Very rarely can I forgive, and I am sorry for that in advance.
+</details>
 
 <details>
 <summary>KINS</summary>
