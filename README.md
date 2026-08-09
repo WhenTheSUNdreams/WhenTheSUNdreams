@@ -38,6 +38,10 @@ DO NOT call me 1 eggs makes me uncomfortable.
 
 I would prefer if doubles don't interact unless we are CLOSE friends.
 
+DO NOT, I repeat, do NOT bring up politics unless under VERY SPECIFIC CIRCUMSTANCES AND YOU ARE A CLOSE FRIEND.
+
+Do NOT BRING UP RELIGION! UNLESS, AGAIN, CLOSE FRIEND OR I DO. Do not FORCE IT UPON ME. I've just had very bad experiences with people in general okay, even if it was PRIOR to ponytown.
+
 I separate characters from their medias unless said character is problematic too.
 
 I don't unblock.
