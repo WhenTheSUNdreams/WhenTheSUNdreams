@@ -118,6 +118,31 @@ IWC (unless close)
 > Again, in turn, I usually cling to people who like / resonate / have kins of the same medias my kins come from.
 </details>
 
+<details>
+<summary>CURRENT NICKNAMES</summary>
+  IN ORDER OF PREFERENCE:
+  
+> Bagel
+
+> 1x1x1x1/1x
+
+> TKC/Timekeeper/Keeper
+
+> Gebura
+
+> ALL OTHER KIN NAMES
+
+> Bag
+
+> Baguette
+
+> Croissant
+
+> Dree
+
+> Trashcoon
+
+</details>
 
 <details> 
   <summary>EXTRA warnings</summary>
