@@ -128,7 +128,7 @@ IWC (unless close)
 
 > TKC/Timekeeper/Keeper
 
-> Gebura
+> Gebura/Kali
 
 > ALL OTHER KIN NAMES
 
