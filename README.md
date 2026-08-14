@@ -178,7 +178,7 @@ In NO ORDER:
 
 > "Sixer" / Guest 666 (Fsaken)
 
-> Gebura (LCorp / Any instance)
+> Gebura / Kali (LCorp / Any instance)
 
 > Fluttershy (MLP: Friendship is Magic)
 
