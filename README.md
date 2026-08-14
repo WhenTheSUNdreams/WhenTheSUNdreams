@@ -93,7 +93,7 @@ IWC (unless close)
 
 > I love my oomfs. YOU KNOW WHO YOU LOT ARE!! HI!!! HERAR EMOJI HEART EMOJI HEART EMOJI GIFT EMOJI!!! /p /gen
 
-> Yes, I am a yumeshipper. no, I'm not gonna snap at someone who likes the same characters. I don't actually talk about my f/os or familials unless we're close friends.
+> Yes, I am a yumeshipper. no, I'm not gonna snap at someone who likes the same characters. I don't actually talk about this unless we're close friends AND, you're okay with it.
 
 > I use tonetags almost 24/7. Confused what one means? I'm happy to explain!
 
@@ -101,7 +101,9 @@ IWC (unless close)
 
 > I have a tendency to hide advertisements in PONYTOWN because it clogs my chat.. it's always temporary tho!
 
-> I am unwell, whether I present it or not. I am unstable, though I'm not sure what's wrong with me. Please, be patient with me.
+> I DON'T like drama. Preferred you keep drama AWAY from me.
+
+> I am unwell, whether I present it or not. Please, have some patient with me.
 
 > I will come to you if I need/want help. Don't feel bad and don't pester me.
 
