@@ -91,6 +91,8 @@ IWC (unless close)
 
 > Transmasculine, Demiromantic. 15-18. I'm not putting my exact age here.
 
+> I'm in SO many fandoms its not funny.. ahaaha. #heavymultifandom or whatever
+
 > I love my oomfs. YOU KNOW WHO YOU LOT ARE!! HI!!! HERAR EMOJI HEART EMOJI HEART EMOJI GIFT EMOJI!!! /p /gen
 
 > Yes, I am a yumeshipper. no, I'm not gonna snap at someone who likes the same characters. I don't actually talk about this unless we're close friends AND, you're okay with it.
