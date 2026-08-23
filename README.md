@@ -107,6 +107,8 @@ IWC (unless close)
 
 > I am unwell, whether I present it or not. Please, have some patient with me.
 
+> My mood is always a coinflip; a good day or not.
+
 > I will come to you if I need/want help. Don't feel bad and don't pester me.
 
 > I am a quiet person, but I WILL let you know if I don't like something. Honesty >>
