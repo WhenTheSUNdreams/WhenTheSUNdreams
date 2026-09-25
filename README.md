@@ -34,6 +34,11 @@
 > A Memorable Creator</details>
 #
 <details>
+<summary>TO WHOM IT CONCERNS</summary>
+If I have cut ties with you, it should be clear I don't want to see you again. You know who you are. For the better of both of us, move on. We have caused each other enough despair. I'm only putting this here since you think it's funny trying to talk to me THROUGH my friends.</details>
+
+#
+<details>
   <summary>BOUNDARIES/DNIs</summary>
 
 DO NOT call me 1 eggs makes me uncomfortable.
