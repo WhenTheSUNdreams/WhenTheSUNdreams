@@ -158,7 +158,7 @@ IWC (unless close)
 </details>
 
 <details> 
-  <summary>EXTRA warnings</summary>
+  <summary>EXTRA WARNINGS</summary>
   
 > Fiction affects *MY* reality, due to how I present myself and how my brain works. In general, i prefer only CLOSE friends talk about ships entirely.
 
@@ -167,6 +167,22 @@ IWC (unless close)
 > If it isn't obvious: I HOLD GRUDGES. My memory may be poor, but I HAVE NEVER FORGOTTEN BAD EXPERIENCES. Very rarely can I forgive, and I am sorry for that in advance.
 </details>
 
+<details>
+  <summary>WHERE I LINGER</summary>
+  IN ORDER OF WHERE YOU'LL LIKELY FIND ME, TO THE LESS LIKELY:
+
+> DOCKS
+
+> CLUB
+
+> PARTY ISLAND
+
+> SOUTHEAST DOCKS
+
+> Cookie Run Area
+
+> You will NEVER find me at the designated Project Moon area. I have heard BAD THINGS about the people there, and I don't want to chance things whatsoever. No offense.
+</details>
 <details>
 <summary>KINS</summary>
 In NO ORDER:
