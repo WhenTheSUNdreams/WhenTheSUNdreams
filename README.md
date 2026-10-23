@@ -7,31 +7,31 @@
 
 
 [@radiant-zero](https://github.com/radiant-zero)
-> The Ever-Radiant
+> The Ever - Radiant
 
 [@A-Crescent-Shadow](https://github.com/A-Crescent-Shadow)
-> The Merciful Umbra; hello there!!
+> The Merciful Umbra ; hello there!!
 
 [@wifiessss](https://github.com/wifiessss) & [@M0RALITYOFTH3STRATEG1ST](https://github.com/M0RALITYOFTH3STRATEG1ST)
-> The Kin of a Creation
+> Under the wing of a color .
 
 [@wifififies](https://github.com/wifififies)
-> THE BEST reflection.
+> THE BEST reflection .
 
 [@oathboundlighth](https://github.com/oathboundlight)
-> THE Hohenheim / THE flins
+> THE Hohenheim / THE flins .
 
 [@selozar-tro](https://github.com/selozar-tro)
-> A Creation's Solace
+> The only solace in the city .
 
 [@M3lodi1](https://github.com/M3lodi1)
-> An Everlasting Rainbow
+> An Everlasting Rainbow .
 
 [@Sk1ttlezWasHere](https://github.com/Sk1ttlezWasH3re)
-> The Perseverant Hue
+> The Perseverant Hue .
 
 [@bleedingmemory](https://github.com/bleedingmemory)
-> A Memorable Creator</details>
+> A Memorable Co - Worker .</details>
 #
 <details>
 <summary>TO WHOM IT CONCERNS</summary>
@@ -94,7 +94,7 @@ IWC (unless close)
 </details>
 
 <details>
-  <summary>ABOUT 1x / BAGEL</summary>
+  <summary>ABOUT KALI / BAGEL</summary>
 
 > Transmasculine, Demiromantic. 15-18. I'm not putting my exact age here.
 
@@ -102,15 +102,15 @@ IWC (unless close)
 
 > I love my oomfs. YOU KNOW WHO YOU LOT ARE!! HI!!! HERAR EMOJI HEART EMOJI HEART EMOJI GIFT EMOJI!!! /p /gen
 
-> Yes, I am a yumeshipper. no, I'm not gonna snap at someone who likes the same characters. I don't actually talk about this unless we're close friends AND, you're okay with it.
+> I am a ***HYPERSHARING*** yumeshipper. Please , , doubles interact , , I love doubles unless said otherwise, ,
 
-> I use tonetags almost 24/7. Confused what one means? I'm happy to explain!
+> I use tonetags almost 24/7. Confused what one means? I'm happy to explain.
 
 > I experience TOUCH COMFORT, despite being a digital figure. Essentially, I'm comforted in presence and prefer to be around people. Essentially, please please please sit with h me if I'm alone!!!
 
-> I have a tendency to hide advertisements in PONYTOWN because it clogs my chat.. it's always temporary tho!
+> I have a tendency to hide advertisements in PONYTOWN because it clogs my chat. It's **never** permanent.
 
-> I DON'T like drama. Preferred you keep drama AWAY from me.
+> Unless I show curiosity first, do NOT bring drama to me.
 
 > I am unwell, whether I present it or not. Please, have some patient with me.
 
@@ -126,9 +126,9 @@ IWC (unless close)
 
 > I will mirror how you treat me.
   
-> I also may act like characters I resonate well with.
+> To cope with stress, I may be seen taking on a character's identity.
 
-> Again, in turn, I usually cling to people who like / resonate / have kins of the same medias my kins come from.
+> I usually cling to people who like / resonate / have kins of the same medias my kins come from.
 </details>
 
 <details>
@@ -137,11 +137,11 @@ IWC (unless close)
   
 > Bagel
 
-> 1x1x1x1/1x
+> Gebura / Kali
 
-> TKC/Timekeeper/Keeper
+> 1x1x1x1 / 1x
 
-> Gebura/Kali
+> TKC / Timekeeper / Keeper
 
 > ALL OTHER KIN NAMES
 
@@ -153,18 +153,18 @@ IWC (unless close)
 
 > Dree
 
-> Trashcoon
+> ANY OTHER NICKNAMES
 
 </details>
 
 <details> 
   <summary>EXTRA WARNINGS</summary>
   
-> Fiction affects *MY* reality, due to how I present myself and how my brain works. In general, i prefer only CLOSE friends talk about ships entirely.
+> Fiction affects *MY* reality, due to how I present myself and how my brain works. In general, i prefer only CLOSE friends talk about ships unless I engage first.
 
 > I can and will get protective over my oomfs, because they are ALL AMAZING PEOPLE. Any bad terms with them = Instant bad terms with me.
 
-> If it isn't obvious: I HOLD GRUDGES. My memory may be poor, but I HAVE NEVER FORGOTTEN BAD EXPERIENCES. Very rarely can I forgive, and I am sorry for that in advance.
+> I hold grudges and I hardly let them go. Despite my selective memory, BAD EVENTS always stick.
 </details>
 
 <details>
@@ -181,7 +181,7 @@ IWC (unless close)
 
 > Cookie Run Area
 
-> You will NEVER find me at the designated Project Moon area. I have heard BAD THINGS about the people there, and I don't want to chance things whatsoever. No offense.
+> You will NEVER find me at the designated Project Moon area UNLESS [RODION](https://github.com/Esc4pe-Pl4n)'s THERE.
 </details>
 <details>
 <summary>KINS</summary>
