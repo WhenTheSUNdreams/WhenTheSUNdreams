@@ -41,9 +41,7 @@ If I have cut ties with you, it should be clear I don't want to see you again. Y
 <details>
   <summary>BOUNDARIES/DNIs</summary>
 
-DO NOT call me 1 eggs makes me uncomfortable.
-
-I would prefer if doubles don't interact unless we are CLOSE friends.
+DO NOT call me 1 eggs. Instant block.
 
 DO NOT, I repeat, do NOT bring up politics unless under VERY SPECIFIC CIRCUMSTANCES AND YOU ARE A CLOSE FRIEND.
 
@@ -54,7 +52,9 @@ I separate characters from their medias unless said character is problematic too
 I don't unblock.
 
 DNI
-  
+
+> AI SUPPORTERS.
+
 > Souldrivenlove supporters
   
 > QWEL supporters
@@ -216,4 +216,4 @@ In NO ORDER:
 ![IMG_7564](https://github.com/user-attachments/assets/4eec1617-17ab-4118-aae2-aa6d6be6536d)
 
 
-![](https://komarev.com/ghpvc/?username=WhenTheSUNdreams&label=DEAD+RISEN&color=6e0b0b)
+![](https://komarev.com/ghpvc/?username=WhenTheSUNdreams&label=ABNORMALITIES+SLAIN&color=6e0b0b)
