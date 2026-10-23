@@ -1,8 +1,5 @@
 <img width="410" height="270" alt="Untitled539_20261023170740" src="https://github.com/user-attachments/assets/3f9234de-c7cd-405d-a9d4-b7413471ee1b" />
 
-
-**'^' You came from Ponytown or Art Fight. How else did you get here? Hi.**
-
 <details>
 <summary>THE BEST PEOPLE I KNOW!!</summary>
 
