@@ -1,5 +1,9 @@
 <img width="410" height="270" alt="Untitled539_20261023170740" src="https://github.com/user-attachments/assets/3f9234de-c7cd-405d-a9d4-b7413471ee1b" />
 
+![](https://komarev.com/ghpvc/?username=WhenTheSUNdreams&label=CLAWS+SLAIN&color=6e0b0b)
+
+THE RED MIST
+
 <details>
 <summary>THE BEST PEOPLE I KNOW!!</summary>
 
@@ -211,7 +215,6 @@ In NO ORDER:
   
 </details>
 
-![](https://komarev.com/ghpvc/?username=WhenTheSUNdreams&label=ABNORMALITIES+SLAIN&color=6e0b0b)
-
+[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31foqcexu7qyqvgl2ktunidml4qm&cover_image=true&theme=natemoo-re&show_offline=true&background_color=630808&interchange=true&profanity=false&hide_remaster=false&bar_color=4e0404&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile)
 
 <img width="410" height="270" alt="Untitled540_20261023170959" src="https://github.com/user-attachments/assets/73792782-7bb4-4f2a-a07a-ec8347f2bf89" />
