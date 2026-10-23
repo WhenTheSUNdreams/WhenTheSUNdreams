@@ -2,7 +2,7 @@
 
 ![](https://komarev.com/ghpvc/?username=WhenTheSUNdreams&label=CLAWS+SLAIN&color=6e0b0b)
 
-THE RED MIST
+!!THE RED MIST!!
 
 <details>
 <summary>THE BEST PEOPLE I KNOW!!</summary>
