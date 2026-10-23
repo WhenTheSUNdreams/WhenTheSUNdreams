@@ -1,4 +1,5 @@
-![IMG_7564](https://github.com/user-attachments/assets/4eec1617-17ab-4118-aae2-aa6d6be6536d)
+<img width="410" height="270" alt="Untitled539_20261023170740" src="https://github.com/user-attachments/assets/3f9234de-c7cd-405d-a9d4-b7413471ee1b" />
+
 
 **'^' You came from Ponytown or Art Fight. How else did you get here? Hi.**
 
@@ -213,7 +214,7 @@ In NO ORDER:
   
 </details>
 
-![IMG_7564](https://github.com/user-attachments/assets/4eec1617-17ab-4118-aae2-aa6d6be6536d)
-
-
 ![](https://komarev.com/ghpvc/?username=WhenTheSUNdreams&label=ABNORMALITIES+SLAIN&color=6e0b0b)
+
+
+<img width="410" height="270" alt="Untitled540_20261023170959" src="https://github.com/user-attachments/assets/73792782-7bb4-4f2a-a07a-ec8347f2bf89" />
