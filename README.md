@@ -3,6 +3,10 @@
 ![](https://komarev.com/ghpvc/?username=WhenTheSUNdreams&label=CLAWS+SLAIN&color=6e0b0b)
 
 OH MY GOD IS THAT THE RED MIST????
+> v AWARDS v
+
+[@THE-TEMPIST](https://github.com/THE-TEMPIST)
+#
 
 <details>
 <summary>THE BEST PEOPLE I KNOW!!</summary>
