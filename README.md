@@ -38,8 +38,8 @@ OH MY GOD IS THAT THE RED MIST????
 [@Sk1ttlezWasHere](https://github.com/Sk1ttlezWasH3re)
 > The Perseverant Hue .
 
-[@bleedingmemory](https://github.com/bleedingmemory)
-> A Memorable Co - Worker .</details>
+[@bleeding-memory](https://github.com/bleeding-memory)
+> A Memorable Mentor .</details>
 #
 <details>
 <summary>TO WHOM IT CONCERNS</summary>
