@@ -39,7 +39,7 @@ OH MY GOD IS THAT THE RED MIST????
 > The Perseverant Hue .
 
 [@bleeding-memory](https://github.com/bleeding-memory)
-> A Memorable Mentor .</details>
+> A Memorable Mentor . (AKA: THE telamon)</details>
 #
 <details>
 <summary>TO WHOM IT CONCERNS</summary>
@@ -73,7 +73,7 @@ DNI
 
 > Redfurthefox supporters (aka the owner of Animatronic world on roblox)
 
-> TELAMON / SHEDLETSKY COSPLAYERS/KINS/ETC. Unless you're like... XANDER, ZERO, MEDUSA, FROST.
+> TELAMON / SHEDLETSKY COSPLAYERS/KINS/ETC. Unless you're like... THE telamon, XANDER, ZERO, MEDUSA, FROST.
 
 > DSMP FANDOM/MEDIA (unless I bring it up)
 
