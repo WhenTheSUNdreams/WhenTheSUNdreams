@@ -40,10 +40,6 @@ OH MY GOD IS THAT THE RED MIST????
 
 [@bleeding-memory](https://github.com/bleeding-memory)
 > A Memorable Mentor . (AKA: THE telamon)</details>
-#
-<details>
-<summary>TO WHOM IT CONCERNS</summary>
-If I have cut ties with you, it should be clear I don't want to see you again. You know who you are. For the better of both of us, move on. We have caused each other enough despair. I'm only putting this here since you think it's funny trying to talk to me THROUGH my friends.</details>
 
 #
 <details>
@@ -175,6 +171,7 @@ IWC (unless close)
 > I hold grudges and I hardly let them go. Despite my selective memory, BAD EVENTS always stick.
 </details>
 
+#
 <details>
   <summary>WHERE I LINGER</summary>
   IN ORDER OF WHERE YOU'LL LIKELY FIND ME, TO THE LESS LIKELY:
