@@ -156,7 +156,7 @@ THIN ICE (unless close)
 <details> 
   <summary>EXTRA WARNINGS</summary>
   
-> Fiction affects *MY* reality, due to how I present myself and how my brain works. In general, i prefer only CLOSE friends talk about ships unless I engage first.
+> Fiction affects *MY* reality, due to how I present myself and how my brain works. Take this as you will.
 
 > I can and will get protective over my oomfs, because they are ALL AMAZING PEOPLE. Any bad terms with them = Instant bad terms with me.
 
