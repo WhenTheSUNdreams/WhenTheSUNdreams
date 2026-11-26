@@ -75,7 +75,7 @@ DNI
 
 > All the problematic shit. 
 
-IWEC (unless close)
+THIN ICE (unless close)
 
 > F*RS*KEN FANDOM
 
@@ -86,14 +86,6 @@ IWEC (unless close)
 > FNAF FANDOM(s)
 
 > MLP FANDOM
-
-IWC (unless close)
-
-> PROJECT MOON FANDOM(s)
-
-> UNDERTALE FANDOM (and the aus' fandoms)
-
-> CRK FANDOM
 
 </details>
 
@@ -178,13 +170,13 @@ IWC (unless close)
 
 > DOCKS
 
-> CLUB
-
 > PARTY ISLAND
+
+> DELTARUNE/UNDERTALE AREA
 
 > SOUTHEAST DOCKS
 
-> Cookie Run Area
+> COOKIE RUN AREA
 
 > You will NEVER find me at the designated Project Moon area UNLESS [RODION](https://github.com/Esc4pe-Pl4n)'s THERE.
 </details>
